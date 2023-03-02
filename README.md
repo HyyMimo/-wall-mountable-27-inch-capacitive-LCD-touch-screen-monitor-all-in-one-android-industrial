@@ -1,0 +1,1 @@
+# -wall-mountable-27-inch-capacitive-LCD-touch-screen-monitor-all-in-one-android-industrial
